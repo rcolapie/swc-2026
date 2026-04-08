@@ -4,6 +4,6 @@ Ingredients:
 - salt
 - chili flakes
 - onions
-- whole tomatoes! 
+- tomato puree 
 Instructions:
 Note: I do not know what I am doing.
