@@ -1,6 +1,6 @@
 Ingredients:
 - avocado
-- lemon
+- lime
 - salt
 - chili flakes
 - onions
